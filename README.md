@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @saikesana13
-- 👀 I’m interested in HTML
+- 👀 I’m interested in JAVA
 - 🌱 I’m currently learning c & c++
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me u can  me mail me at kesana1313@gmail.com
